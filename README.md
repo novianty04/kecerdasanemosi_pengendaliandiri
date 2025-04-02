@@ -1,0 +1,1 @@
+# kecerdasanemosi_pengendaliandiri
